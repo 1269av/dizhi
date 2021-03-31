@@ -1,10 +1,11 @@
 #  1269av视频网最新地址
 
-最新地址一：http://www.1269001.com
+最新地址一：https://www.1269019.com
 
-最新地址二：http://www.1269002.com
+最新发布地址：https://www.12691024.ml
 
-最新地址三：http://www.1269003.com
+最新发布地址：http://www.1269av.ml
+
 
 
 收藏下面地址发布页或发任意邮件到 1269dizhi@gmail.com,自动回复1269视频最新地址
